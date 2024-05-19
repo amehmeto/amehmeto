@@ -22,3 +22,4 @@ Shall we discuss your project?
 
 📅 Book a slot: [https://calendly.com/amehmeto-freelance](https://calendly.com/amehmeto-freelance)
 
+Follow me on LinkedIn: https://www.linkedin.com/in/arthurmehmetoglu/
